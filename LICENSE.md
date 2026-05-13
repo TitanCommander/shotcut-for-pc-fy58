@@ -1,4 +1,4 @@
-# 
+# Enhance Shotcut for PC | Shotcut for Windows with premium Shotcut for PC | Shotcut for Windows Panel | video-stabilization + time-remapping, the #1 panel. Includes
 
 
 
